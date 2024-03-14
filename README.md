@@ -1,0 +1,3 @@
+- 🍡🍝 Front-end Developer
+- 🍭🍼 Open source enthusiast
+- 🛖🎮 Big fan of The Legend of Zelda
